@@ -1,0 +1,1 @@
+Ushu kod 2021 yilda dashturlash kurslariga qatnashgan paytimda Github dan foydalanish maqsadida yuklangan bo'lib ichida hechnarsa yo'q ovora bo'lib vaqtingizni ketgazman. Nasib bo'lsa yangi kod yozsam aytaman.😁
